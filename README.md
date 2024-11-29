@@ -108,3 +108,6 @@ For any queries or support, feel free to reach out:
 - Instagram: [@labelriwayat](https://instagram.com/labelriwayat)
 
 ---
+SCREENSHOTS OF THE WEBSITE : 
+
+https://drive.google.com/drive/folders/10CmJgcNEZqTgCoCGDlQtYk48vA-aea5f?usp=sharing
